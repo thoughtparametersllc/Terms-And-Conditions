@@ -1,5 +1,5 @@
 📄 Terms and Conditions for Professional Engagement
-Preamble: This document outlines the foundational terms and conditions under which I, [Your Name] (hereinafter "the Individual"), am prepared to offer my professional services to and engage with Prospective Entity (hereinafter "the Company"). These terms are presented to establish mutual understanding and form a basis for any subsequent contractual agreement, be it for employment or independent contracting services.
+Preamble: This document outlines the foundational terms and conditions under which I, Jason Lee Miller (hereinafter "the Individual"), am prepared to offer my professional services to and engage with Prospective Entity (hereinafter "the Company"). These terms are presented to establish mutual understanding and form a basis for any subsequent contractual agreement, be it for employment or independent contracting services.
 
 Clauses:
 
